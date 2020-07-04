@@ -24,4 +24,4 @@ Their Pricing Starts at 4.99 Euros per month for 400 GB.
 
 # Who's the Winner :
 
-Clearly <a href = "https://www.linusblaze.com/">https://www.linusblaze.com/</a> is the winner as the level of storage space it provides at those rates is unmatchable
+Clearly <a href = "https://www.linusblaze.com/">linusblaze</a> is the winner as the level of storage space it provides at those rates is unmatchable
